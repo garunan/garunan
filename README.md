@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=spongebash&label=&color=000000)    ᅠᅠ  ![](https://64.media.tumblr.com/780aba24d4344c0ff8e44df1cbac4547/04b3db4489a1b60d-8b/s75x75_c1/0663f7ba86340992553eaa6bbb3a1cb3ecde0c0a.gifv)
+![](https://komarev.com/ghpvc/?username=spongebash&label=&color=000000)    ᅠᅠ  ![](https://64.media.tumblr.com/ae8a7be8ff2074a4c0c0d33276e20524/81aa5d634e7e9bb3-00/s75x75_c1/2cb267df4854eba1095bcf2172bf1e1fc0207645.gifv)
 
 <b>cory    ᅠᅠ or   ᅠᅠ  ivan</b>
 
