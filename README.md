@@ -1,6 +1,7 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=spongebash&label=&color=000000)    ᅠᅠ  ![](https://64.media.tumblr.com/ae8a7be8ff2074a4c0c0d33276e20524/81aa5d634e7e9bb3-00/s75x75_c1/2cb267df4854eba1095bcf2172bf1e1fc0207645.gifv)
+![](https://komarev.com/ghpvc/?username=spongebash&label=&color=000000)    ᅠᅠ  <img width="100" height="20" alt="tumblr_f235c07de308783b6b6b977d5aaaed0a_44825c72_250" src="https://github.com/user-attachments/assets/d24c1414-08f9-4f00-b2fc-a48ba3628cdb" />
+
 
 <b>cory    ᅠᅠ or   ᅠᅠ  ivan</b>
 
@@ -10,4 +11,6 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tun4g3oquqldxlem2ytxhgji44&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 </div>
+
+
 
