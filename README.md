@@ -10,7 +10,6 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tun4g3oquqldxlem2ytxhgji44&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<img width="99" height="56" alt="stamp4" src="https://github.com/user-attachments/assets/250428ab-a22a-4b6e-90fe-3c5e723b88ef" />
 <img width="110" height="60" alt="tumblr_193e21073fb4cdf33c9ef30c9c772b58_e9df550b_250" src="https://github.com/user-attachments/assets/f98d5a6a-70f9-46d9-b682-6990e46a7e13" />
 
 
