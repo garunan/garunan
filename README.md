@@ -12,6 +12,8 @@
 <sup><span style="color:#0f0f0f"> byi w me know that i can be slow in responding please be patient thanks!</span><br><br>
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tun4g3oquqldxlem2ytxhgji44&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+<img width="300" height="168" alt="ezgif-741238cfb21b6295" src="https://github.com/user-attachments/assets/9695f0c7-d28c-4a9a-aa8f-7c6ce94c1757" />
+
 </div>
 
 
