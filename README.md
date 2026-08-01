@@ -9,7 +9,7 @@
 <sup><span style="color:#0f0f0f"> byi w me know that i can be slow in responding please be patient thanks!</span><br><br>
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tun4g3oquqldxlem2ytxhgji44&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-https://github.com/user-attachments/assets/ccf05a85-80fb-49c8-bc87-cda37f81cc23
+https://github.com/user-attachments/assets/9ec62703-44d5-4ebe-a898-e415a15a8c2e
 
 </div>
 
