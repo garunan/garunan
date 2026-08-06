@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=spongebash&label=&color=000000)    ᅠᅠ  <img width="100" height="20" alt="tumblr_f235c07de308783b6b6b977d5aaaed0a_44825c72_250" src="https://github.com/user-attachments/assets/d24c1414-08f9-4f00-b2fc-a48ba3628cdb" />
 
-<img width="171" height="155" alt="dddd" src="https://github.com/user-attachments/assets/aa84a73b-4637-4997-8c5f-ad9f97225f67" />
+<img width="300" height="168" alt="ezgif-741238cfb21b6295" src="https://github.com/user-attachments/assets/d9580d65-c382-4081-a647-2beecf53be6e" />
 
 <sub> [straw](https://coryspazkid.straw.page/)ㅤ﹒ㅤ[fluffle](https://fluffle.cc/garunan)ㅤ﹒ㅤ[ata](https://garunan.atabook.org/)
    
