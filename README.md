@@ -1,8 +1,9 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=spongebash&label=&color=000000)    ᅠᅠ  <img width="100" height="20" alt="tumblr_f235c07de308783b6b6b977d5aaaed0a_44825c72_250" src="https://github.com/user-attachments/assets/d24c1414-08f9-4f00-b2fc-a48ba3628cdb" />
+![](https://komarev.com/ghpvc/?username=spongebash&label=&color=000000)    ᅠᅠ  <img width="150" height="20" alt="tumblr_2fb7fba94c879e34f2a5c66b78b547d7_56dca8e0_250" src="https://github.com/user-attachments/assets/d3336d92-8765-4c9a-91be-1f2858d42eb9" />
 
-<img width="300" height="168" alt="ezgif-741238cfb21b6295" src="https://github.com/user-attachments/assets/d9580d65-c382-4081-a647-2beecf53be6e" />
+
+<img width="244" height="201" alt="experiment-newman-64-jefftastic" src="https://github.com/user-attachments/assets/7586f2ab-f8f5-4187-91cd-4f0b37ff66b3" />
 
 <sub> [straw](https://uhohbyebye.straw.page)ㅤ﹒ㅤ[ata](https://garunan.atabook.org/)
    
