@@ -5,7 +5,7 @@
 
 <img width="200" height="200" alt="sheriff-domestic-petscop" src="https://github.com/user-attachments/assets/06925039-2aaf-4e36-9d18-8152898d0a45" />
 
-<sub> [straw](https://uhohbyebye.straw.page)ㅤ﹒ㅤ[ata](https://garunan.atabook.org/)
+<sub> [pronouns](https://pronouns.cc/@garunan)ㅤ﹒ㅤ[ata](https://garunan.atabook.org/)
    
 <sup><span style="color:#0f0f0f"> byi w me know that i can be slow in responding please be patient thanks!</span><br><br>
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tun4g3oquqldxlem2ytxhgji44&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
