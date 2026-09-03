@@ -16,7 +16,7 @@
 
 <sub> [sign ata](https://garunan.atabook.org/)
 
-<sub>hi i like saw, sheriff domestic, oneyplays + sleepycabin, petscop, undertale/deltarune, & flashgames ok? </sub>
+<sub>hi i like saw, sheriff domestic, oneyplays + sleepycabin, petscop, undertale + deltarune, & flashgames ok? </sub>
 
 ![](https://64.media.tumblr.com/80c44c917ceec39143cfa20b2a00c722/579e5316ffbe1944-5d/s2048x3072/c69f1c2ee257210ffeeb9c213ba7b00c38417e7e.pnj)
 
