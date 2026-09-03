@@ -12,7 +12,7 @@
 ㅤ
   ㅤ<img src="https://files.catbox.moe/ep0cz7.gif" width="200"/>
 
-<sub> [pronouns](https://pronouns.cc/@garunan)ㅤ‧ㅤ[atabook](https://garunan.atabook.org/)
+<sub> [sign ata](https://garunan.atabook.org/)
 
 ![](https://64.media.tumblr.com/80c44c917ceec39143cfa20b2a00c722/579e5316ffbe1944-5d/s2048x3072/c69f1c2ee257210ffeeb9c213ba7b00c38417e7e.pnj)
 
