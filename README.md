@@ -16,7 +16,9 @@
 
 <sub> [sign ata](https://garunan.atabook.org/)
 
-<sub>hi i like saw, sheriff domestic, oneyplays + sleepycabin, petscop, undertale + deltarune, & flashgames ok? </sub>
+<sub>cory or ivan</sub>
+
+<sub>i like saw, sheriff domestic, oneyplays + sleepycabin, petscop, undertale + deltarune, & flashgames ok? </sub>
 
 <sub>more generic interests like args, creepypastas, computer viruses + malware, psa's, lost media, icebergs n' all that fun stuff</sub>
 
