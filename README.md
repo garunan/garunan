@@ -16,7 +16,7 @@
 
 <sub> [sign ata](https://garunan.atabook.org/)
 
-<sub>cory or ivan .. 17 in exactly 19 days !!</sub>
+<sub>cory or ivan .. 17 in exactly 18 days !!</sub>
 
 <sub>i like saw, sheriff domestic, oneyplays + sleepycabin, petscop, undertale + deltarune, & flashgames ok? </sub>
 
