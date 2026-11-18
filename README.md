@@ -2,7 +2,7 @@
 <div align="center">
   
   <p align="center">
- <img width="150" height="150" alt="glisten-glisten-dandys-world (3)" src="https://github.com/user-attachments/assets/7f9ee110-584a-478f-9652-d1d4a50d7c0b" />
+<img width="150" height="150" alt="glisten-glisten-dandys-world (2)" src="https://github.com/user-attachments/assets/363736df-7183-4414-94d8-8f5d4ef7426f" />
 
 
 <p align="center">
