@@ -4,7 +4,7 @@
   <p align="center">
 <img width="300" height="150" alt="glisten-glisten-dandys-world (2)" src="https://github.com/user-attachments/assets/14f17b61-4912-40e8-a112-f789f2898848" />
 
-<sub>hello i’m cory or ivan, wv u know me as</sub>
+<sub>hello i’m cory or ivan, wv u know me as, im 7teen</sub>
 
 <sub>i luv old internet urban legends, creepypastas, & horror web series those r probably like my main interests everything else usually falls under those categories</sub>
 
