@@ -1,6 +1,5 @@
 
 <div align="center">
-<img src="https://api.visitorbadge.io/api/visitors?path=garunan&label&labelColor=77777&countColor=F7BAFB&style=flat">
   
   <p align="center">
  <img width="150" height="150" alt="glisten-glisten-dandys-world (3)" src="https://github.com/user-attachments/assets/7f9ee110-584a-478f-9652-d1d4a50d7c0b" />
