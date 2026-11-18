@@ -1,11 +1,12 @@
+
+<div align="center">
+<img src="https://api.visitorbadge.io/api/visitors?path=garunan&label=hi&labelColor=%00000&countColor=%00000&style=flat">
+  
   <p align="center">
  <img width="150" height="150" alt="glisten-glisten-dandys-world (3)" src="https://github.com/user-attachments/assets/7f9ee110-584a-478f-9652-d1d4a50d7c0b" />
 
-<div align="center">
-<img src="https://api.visitorbadge.io/api/visitors?path=biteofme&label=bats&labelColor=%233f3449&countColor=%235d4d6b&style=flat">
-
 <p align="center">
-  <sub>$\color{#3f3449}{laraㅤ}$</sub>
+  <sub>$\color{#3f3449}{cory}$</sub>
 <p align="center">
   <sub>$\color{#5d4d6b}{"ㅤIㅤwantㅤtoㅤsuckㅤyourㅤbloodㅤ"}$</sub>
 
