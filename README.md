@@ -3,9 +3,9 @@
   </p>
 
 <p align="center"
-</a> <a href="https://garunan.atabook.org">sign ata</a>
+</a> <a href="https://garunan.atabook.org"> <sub> sign ata </sub> </a>
 
 <p align="center"
-<p style="color: pink;">  𖥔ㅤ ㅤwas anyone watching? i hope so!ㅤ ㅤ,,</p>
+<p style="color: pink;">  <sub>𖥔ㅤ ㅤwas anyone watching? i hope so!ㅤ ㅤ,,</sub> </p>
 
 <p align="center"
