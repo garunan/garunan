@@ -6,6 +6,6 @@
 </a> <a href="https://garunan.atabook.org">sign ata</a>
 
 <p align="center"
-<p style="color: pink;">  𖥔ㅤ ㅤthe killer in the mirror !ㅤ ۟   ,,</p>
+<p style="color: pink;">  𖥔ㅤ ㅤwas anyone watching? i hope so!ㅤ ㅤ,,</p>
 
 <p align="center"
