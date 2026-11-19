@@ -2,7 +2,7 @@
   <img src="https://komarev.com/ghpvc/?username=garunan&label=　　𖥔　　&color=ff0000">
   </p>
 
-<img width="498" height="498" alt="dandys-world-mirror" src="https://github.com/user-attachments/assets/329bdf77-56ec-49a7-aae0-e06b51f30265" />
+<img width="100" height="100" alt="glisten-glisten-dandys-world" src="https://github.com/user-attachments/assets/0fed4109-3af6-4476-a3a1-6d5c873d593f" />
 <p align="center"
 
 
