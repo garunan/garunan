@@ -3,7 +3,8 @@
   </p>
 
 <p align="center"
-</a> <a href="https://garunan.atabook.org"> <sub> sign ata </sub> </a>
+</a> <a href="https://garunan.atabook.org"> <sub> sign ata </sub> </a>ㅤ 
+</a> <a href="https://garunan.atabook.org"> <sub> straw </sub> </a>
 
 <p align="center"
 <p style="color: pink;">  <sub>𖥔ㅤ ㅤwas anyone watching? i hope so!ㅤ ㅤ,,</sub> </p>
