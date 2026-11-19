@@ -1,7 +1,9 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=garunan&label=　　𖥔　　&color=ff0000">
-</p>
+  </p>
 
+ <p align="center">
+ 
 ![](https://media1.tenor.com/m/_vyNnjSsKW4AAAAC/glisten-glisten-dandys-world.gif)
 <p align="center" 
  
