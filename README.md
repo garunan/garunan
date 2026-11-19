@@ -1,7 +1,12 @@
-
-<div align="center">
-
 <p align="center">
-<img width="498" height="175" alt="glisten-glisten-dandys-world" src="https://github.com/user-attachments/assets/29293785-91a5-47fa-b083-4740cb45423a" />
+  <img src="https://komarev.com/ghpvc/?username=garunan&label=　　𖥔　　&color=ff0000">
+</p>
 
-<p align="center">
+![](https://media1.tenor.com/m/_vyNnjSsKW4AAAAC/glisten-glisten-dandys-world.gif)
+<p align="center" 
+ 
+<a href="https://en.pronouns.page/@vyytech">prns</a> <a href="https://rentry.co/xdisobedience">rentry</a> <a href="https://allhailthekingbaby.straw.page">straw</a> <a href="https://allhailtheking.atabook.org">ata</a> <a href="https://guns.lol/vyytech">guns</a>
+
+<p align="center"
+
+<p style="color: pink;">  ྀིㅤ ㅤthe killer in the mirror !ㅤ ۟   ,,</p>
