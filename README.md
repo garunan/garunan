@@ -5,7 +5,7 @@
 <tr>      
   <td>
   <p align="center">
-<img width="300" height="150" alt="glisten-glisten-dandys-world (2)" src="https://github.com/user-attachments/assets/14f17b61-4912-40e8-a112-f789f2898848" />
+<img width="300" height="150" alt="https://files.catbox.moe/tjulya.gif" />
 </table>
 
 <sub>hello i’m cory or ivan, wv u know me as, im 7teen</sub>
