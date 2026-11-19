@@ -1,12 +1,9 @@
 
 <div align="center">
 
-<table>
-<tr>      
-  <td>
+
   <p align="center">
 <img width="498" height="175" alt="glisten-glisten-dandys-world" src="https://github.com/user-attachments/assets/29293785-91a5-47fa-b083-4740cb45423a" />
-</table>
 
 <sub>i luv old internet urban legends, creepypastas, & horror web series those r probably like my main interests everything else usually falls under those categories</sub>
 
